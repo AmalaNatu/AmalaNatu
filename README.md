@@ -9,4 +9,4 @@ I’m a Software Engineer passionate about developing web and mobile application
 
 •	I am looking for a Full time/Internship opportunity.
 
-•	Download my Resume here: Download my Resume here()
+•	Download my Resume here: Download my Resume here
